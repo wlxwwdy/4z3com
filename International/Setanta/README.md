@@ -1,0 +1,3 @@
+| ![](https://raw.githubusercontent.com/RevGear/logo/master/International/Setanta/Setanta-Qazaqstan.png) | ![](https://raw.githubusercontent.com/RevGear/logo/master/International/Setanta/Setanta-Sports-1.png) | ![](https://raw.githubusercontent.com/RevGear/logo/master/International/Setanta/Setanta-Sports-2.png) | ![](https://raw.githubusercontent.com/RevGear/logo/master/International/Setanta/Setanta-Sports-3.png) | ![](https://raw.githubusercontent.com/RevGear/logo/master/International/Setanta/Setanta-Sports-Plus.png) | 
+|:---:|:---:|:---:|:---:|:---:| 
+| ![](https://raw.githubusercontent.com/RevGear/logo/master/International/Setanta/Setanta-Sports.png)  | 
